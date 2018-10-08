@@ -6,6 +6,6 @@ Resounding Thud - I heard a door close with a resounding thud (lots of ideas bas
 
 Fleet of Cats - I really don't even know
 
-MouseRat - Actually this one is already taken by Andy from Parks and Recreation... damn
+MouseRat - Actually this one is already taken by Andy from Parks and Recreation...
 
 More to come, stay tuned
