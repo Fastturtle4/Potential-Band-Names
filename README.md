@@ -1,4 +1,4 @@
-Potential band names for whenever I develop musical talent (and the circumstances that led me to think of them):
+# Potential band names for whenever I develop musical talent (and the circumstances that led me to think of them):
 
 Distant Bark - I heard a dog bark... from a distance
 
